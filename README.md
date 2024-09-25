@@ -5,7 +5,7 @@ En esta pagina web recomendare todo tipo de botas que sean para jugar a futbol c
 ## Aqui teneis las botas que recomiendo usar para segun la posición que juegues.
 
 
-### Si eres delantero o extremo:
+## Si eres delantero o extremo:
 
 ### Las botas que mas recomiendo son:
 ### - Nike ZOOM SUPERFLY 9 ELITE FG : Precio: €279,99
@@ -58,6 +58,8 @@ Y para la opción con garantía de futuro, busca unas Puma King Ultimate. Uno de
 Los porteros siempre buscan las botas perfectas que les proporcionen una tracción, un agarre y una sujeción excelentes. Las adidas Copa Pure es una excelente elección para cualquier portero que busque un ajuste cómodo que ofrezca una gran sujeción para sus pies. Las botas Copa Pure tienen un diseño único que proporciona un agarre y una estabilidad superiores en cualquier superficie del campo, lo que las convierte en la opción ideal para porteros de todos los niveles.
 ### -  Mizuno Morelia Neo III Beta Made in : Precio: €340,00
 ![text alternatiu](https://i1.t4s.cz/galleries/3/584374.jpg)
+
 Otra gran opción para los porteros es Mizuno Morelia Neo III. Los artesanos japoneses de Mizuno son desde hace tiempo la referencia en botas de fútbol de piel de calidad. Sus botas, confeccionadas con piel de canguro, son famosas por su comodidad y durabilidad, superando a la competencia incluso en las condiciones más duras. Con una inigualable atención al detalle y un compromiso con la excelencia, Mizuno se ha ganado su lugar como uno de los mejores fabricantes de botas de fútbol del mundo y, sin duda alguna ¡has de darles una oportunidad!
 
-Podemos encontras más variaciones de botas en páginas como futbolmania: (https://www.futbolmania.com/es/?srsltid=AfmBOopwrpPA-HLbFBHRp-qDxUw3qV6HhBdBEm-_1MumX44D4jbcJ1O7) 
+### Podemos encontras más variaciones de botas en páginas como futbolmania: 
+#### (https://www.futbolmania.com/es/?srsltid=AfmBOopwrpPA-HLbFBHRp-qDxUw3qV6HhBdBEm-_1MumX44D4jbcJ1O7) 
