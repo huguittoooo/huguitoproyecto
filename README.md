@@ -36,7 +36,9 @@ Los centrocampistas son el eje en cualquier equipo, y sus botas deben tener un c
 ![text alternatiu](https://i1.t4s.cz/galleries/3/584371.jpg)
 Otra gran opción son las Puma Future. Estas botas de fútbol, que han arrasado en el mundo del fútbol, han convertido a muchos futbolistas profesionales en usuarios de Puma, y con razón. Tras la mejora que experimentaron las botas en Puma Future 1.4, las Future Ultimate son las botas de fútbol con mejor ajuste del mercado. Sentirás la sensación de jugar descalzo con este par de botas y mejorarás significativamente tu toque y sensación en la pelota. Usadas por jugadores como Neymar, Jack Grealish y Allan Saint-Maximin, las Puma Future Ultimate son la elección perfecta para los jugadores habilidosos.
 
-## Si eres defensa, las botas que más recomiendo son:
+## Si eres defensa:
+
+### las botas que más recomiendo son:
 ### - Adidas PREDATOR ACCURACY+ FG : Precio: €300,00 
 ![text alternatiu](https://i1.t4s.cz/galleries/3/584376.jpg)
 Los defensas son el candado del equipo, por lo que necesitan unas botas fiables, estables y protectoras. Las adidas Predator ofrece una protección inigualable gracias a su resistente armazón. Las Predator cuentan con un diseño que mantiene los pies bien protegidos durante los partidos y entrenamientos. Estas botas ofrecen un ajuste seguro, que proporciona estabilidad y permite a los defensas reaccionar y ejecutar entradas con rapidez. Por si fuera poco, los elementos de goma High Definition Grip garantizan pases precisos y confianza con el balón.
